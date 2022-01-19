@@ -5,10 +5,9 @@ categories: [Love, Providence]
 ---
 
 ![alt text](https://images.pexels.com/photos/937465/pexels-photo-937465.jpeg?auto=compress&cs=tinysrgb&dpr=2&h=650&w=940" Logo Title Text 1")
-
-## Love unconditional. Part I (Divine Origins)
  
 Our idea of who God is pervades everything in our spiritual space and determines how we live our lives. For much human existence, there has been a challenge of understanding who or what God is, as humans have sought, through many different media, a path to God. In modern times, the preference for a proven scientific approach to solving our challenges has become prevalent, leading many to doubt the existence of a God, let alone one that is unconditionally loving. Religion also sometimes, seemingly, offers no solace. Here, we are on occasion presented with a God (or gods) whose love is conditional. In the Old testament (Christian Bible), for instance, God said: “Thou shalt not bow down thyself to them, nor serve them: for I the Lord thy God am a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth generation of them that hate me; And shewing mercy unto thousands of them that love me, and keep my commandments”. Yikes! 
+
 
 So how do we reconcile this idea of agape love with seeming conditional love set forth by our Deities? Here (on the rational mind), one of our goals is to understand things from first principles. In this post, mostly drawn from a conversation with  Pastor Jeffery Walter of [Cafan Media](https://www.youtube.com/c/CAFANMEDIA/about "Cafan Media") about what unconditional love is, I outline what I believe is a sound model of unconditional love, and how an all-loving, all-wise God goes about loving his subjects.
  
@@ -46,6 +45,7 @@ Of course, this example is a bit contrived, but the point here is this: God love
 ### Takeaway
  
 The takeaway here is this: God is constant, and that constant is unconditional love. Contrary to what you might read or hear, He is not a vengeful, tyrannical overlord, whose goal is to bend our will to his purpose only. Given the challenges we face, it is difficult to see how this is true. So many times we get mad at God and shake our fists; however, coming to this understanding, does not happen overnight. It takes time, and it takes effort. 
+
 
 The best way (I’ve found) to understand unconditional love is to mimic it in our own lives because then we'll begin to truly understand the joys inherent in living for a greater purpose. Here's an exercise, pick one thing that you can do now that people, not just yourself, will benefit from. It doesn't have to be the grandest thing like donating a lot of money. It could be the smallest of things like sweeping a room, or cooking a meal. The goal of this exercise is to be process oriented, not outcome oriented.  In other words, focus NOT on what you'll get, but on producing your best work; see it through, and journal how it makes you feel. It may or may not work for you, but you can send me an email of your experience with it. I'm eager to know whether or not it works for you. There is, after all, more blessing in giving than in receiving.
  
