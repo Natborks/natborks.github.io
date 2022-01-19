@@ -10,7 +10,7 @@ It begins with the mind. An ordered mind is an ordered life. Yet, it can be a hu
 
 The good news is that there is also a rational mind. Put simply, the rational mind provides a framework in which both worlds can work in concert to bring us purposeful lives. It follows, then, that working on our rationality equals building sustainable lifestyles, or living a life of love and usefulness. 
 
-On this website, you may find discussions around the following topics: 
+The goal of this website is to discuss issues around spirituality in a way that makes it accessible. On this website, you may find discussions around the following topics: 
 
 - The Human mind
 - Human Freedom and Rationality
