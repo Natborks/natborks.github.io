@@ -4,7 +4,7 @@ title: About
 permalink: /about
 ---
 
-It beings with the mind. An ordered mind is an ordered life. Yet, it can be a huge challenge to see through the confusion and live orderly life. The reason for this confusion is that we are often torn between the pleasures of the lower mind and those of higher mind. Each one with its unique characteristics, yet both of them needing to work together to bring us fuller, more useful lives. 
+It begins with the mind. An ordered mind is an ordered life. Yet, it can be a huge challenge to see through the confusion and live orderly life. The reason for this confusion is that we are often torn between the pleasures of the lower mind and those of higher mind. Each one with its unique characteristics, yet both of them needing to work together to bring us fuller, more useful lives. 
 
 ![Spiderman pulling two halves of a splitting ferry together](https://res.cloudinary.com/dbrrygmpk/image/upload/v1642572975/rational_mind_pccqfv.jpg " Spiderman pulling two halves of a splitting ferry together")
 
