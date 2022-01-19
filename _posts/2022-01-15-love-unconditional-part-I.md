@@ -30,15 +30,15 @@ Q. How do I get closer to God then?
  
 > If we look at God’s commandments as something we must do in order to receive his love, then we will not benefit much from it because it will become burdensome to us. If we view God’s commandments like a parent guiding his or her child unto the right path, then we will be more willing to freely allow him to love us.
  
-### Wax on; Wax off. An illusory example
+### Wax on; Wax off. An illusory example (Spoilers alert)
  
-Karate Kid is one of my all-time favourite movies. In the movie, Daniel LaRusso is being bullied by Johnny Lawrence, so Daniel goes to Mr. Miyagi to teach him some Karate so he can defend himself. To begin training, Mr. Miyagi gives Daniel a bunch of seemingly pointless exercises like, [wax on; wax off](https://youtu.be/SMCsXl9SGgY "wax on; wax off"), where Daniel cleans old, dirty cars with an elaborate, swiping motion. In addition to this, Daniel is made to scrub floors, paint fences, among other things. Mr. Miyagi's methods are eccentric, and Daniel is tempted to quit at a point; however, he will come to know the value inherent in these exercises later on, especially when he wins All-Valley Championship. 
+Karate Kid is one of my all-time favourite movies. In the movie, Daniel LaRusso is being bullied by Johnny Lawrence, so Daniel goes to Mr. Miyagi to teach him some Karate so he can defend himself. To begin training, Mr. Miyagi gives Daniel a bunch of seemingly pointless exercises like, [wax on; wax off](https://youtu.be/SMCsXl9SGgY "wax on; wax off"), where Daniel cleans old, dirty cars with an elaborate, swiping motion. In addition to this, Daniel is made to scrub floors, paint fences, among other things. Mr. Miyagi's methods are eccentric, and Daniel is tempted to quit at a point; however, he will come to know the value inherent in these exercises later on, especially when he wins All-Valley Karate Championship. 
  
 ![Wax on; Wax off gif](https://c.tenor.com/Wmayd_hVXv0AAAAd/karate-kid-wax-on.gif" Wax On; Wax Off")
  
 Ultimately, God's desire is to bring us to place of genuine happiness. A lot of the happiness we seek for ourselves is mostly harmful. What God wants to do is rearrange these desires so that they align with orderly happiness: happiness that would not destroy us and the people around us. It is like Daniel LaRusso wanting to learn karate so that he can take revenge on Johnny and being told to wax on; wax off. Eventually, Daniel learns the self-discipline and self-mastery it takes to become a true karate master. These values will serve him well even beyond karate and play a role in making him a successful business owner ( in my opinion ). Daniel comes to love Mr. Miyagi so much, because of the training he received from him.  What does Mr. Miyagi get from all this? Nothing, but the selfless joy of seeing Daniel develop into his best possible self.
  
-Of course, this example is a bit contrived, but the point here is this: God loves us so much, and all he cares about is bringing us to a place of genuine happiness. God has been moving in an infinite capacity from eternity for us. It is up to us to align ourselves. 
+Of course, this example is a bit contrived. God is not trying to teach you karate, but the point here is this: God loves us so much, and all he cares about is bringing us to a place of genuine happiness. God has been moving in an infinite capacity from eternity for us. It is up to us to align ourselves. 
  
 > Either you karate do yes, or karate do no. You karate do guess so, kwhee. Just like grape.  Understand? 
  
@@ -54,4 +54,4 @@ The best way (I’ve found) to understand unconditional love is to mimic it in o
 Now, many (of my friends at least) have argued unconditional love is impossible for us mere mortals, but I disagree, so join me in the second part of this series, Love unconditional-Part II , where we explore how we can apply the ideas espoused here to our personal relationships and, possibly, love unconditionally.
 
 
-Postscript: There are a lot of things mentioned or alluded to in the article which weren't expounded upon. For instance, we did talk about why there's so much suffering in world if God's love for the human race in unconditional. These topics are deep and would require their own articles, or article series in order to properly explore them.
+Postscript: There are a lot of things mentioned or alluded to in the article which weren't expounded upon. For instance, we did talk about why there's so much suffering in the world if God's love for the human race in unconditional. These topics are deep and would require their own articles, or article series in order to properly explore them.
