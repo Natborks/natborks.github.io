@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Love unconditional. Part II 
+title: Unconditional Love. Part II 
 subtitle: Romantica and platonic relationships
 categories: [Love, Providence]
 ---

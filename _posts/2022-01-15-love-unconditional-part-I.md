@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Love unconditional. Part I (Divine Origins)
+title: Unconditional Love. Part I (Divine Origins)
 categories: [Love, Providence]
 ---
 
