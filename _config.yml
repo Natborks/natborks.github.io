@@ -12,7 +12,8 @@ name: The Rational Mind
 description: Semper ad meilora
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
-avatar: /assets/image/avatar.png
+# avatar: /assets/image/avatar.png
+avatar: https://images.unsplash.com/photo-1597227312826-cf4d1f4b7f52?ixlib=rb-1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1464&q=80
 
 #
 # Flags below are optional
@@ -38,6 +39,9 @@ navigation_links:
 
   - title: Search
     url: /search
+
+  - title: Contact
+    url: /contact
 
 # Footer icons
 footer_links:
@@ -86,6 +90,9 @@ gems:
   - jekyll-seo-tag
   - jemoji
 
+plugins:
+  - jekyll-seo-tag
+  
 # Exclude these files from your production _site
 exclude:
   - Gemfile

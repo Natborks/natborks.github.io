@@ -6,7 +6,7 @@ categories: [Love, Providence]
 
 ![alt text](https://images.pexels.com/photos/937465/pexels-photo-937465.jpeg?auto=compress&cs=tinysrgb&dpr=2&h=650&w=940" Logo Title Text 1")
  
-Our idea of who God is pervades everything in our spiritual space and determines how we live our lives. For much human existence, there has been a challenge of understanding who or what God is, as humans have sought, through many different media, a path to God. In modern times, the preference for a proven scientific approach to solving our challenges has become prevalent, leading many to doubt the existence of a God, let alone one that is unconditionally loving. 
+Our idea of who God is pervades everything in our spiritual space and determines how we live our lives. For much human existence, there has been a challenge of understanding who or what God is, as humans have sought, through many different media, a path to God. In modern times, the preference for a proven scientific approach to solving our challenges has become prevalent, leading many to doubt the existence of a God, let alone one that is unconditionally loving.  
 
 Religion also sometimes, seemingly, offers no solace. Here, we are on occasion presented with a God (or gods) whose love is conditional. In the Old testament (Christian Bible), for instance, God said: “Thou shalt not bow down thyself to them, nor serve them: for I the Lord thy God am a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth generation of them that hate me; And shewing mercy unto thousands of them that love me, and keep my commandments”. Yikes! 
 
@@ -28,7 +28,7 @@ Q. If I have to do something to get closer to God, isn’t this love still condi
  
 Q. How do I get closer to God then?
  
-> If we look at God’s commandments as something we must do in order to receive his love, then we will not benefit much from it because it will become burdensome to us. If we view God’s commandments like a parent guiding his or her child unto the right path, then we will be more willing to freely allow him to love us.
+> If we look at God’s commandments as something we must do in order to receive his love, then we will not benefit much from it because it will become burdensome to us. If we view God’s commandments like a parent guiding his or her child unto the right path, then we will be more willing to allow him to love us freely.
  
 ### Wax on; Wax off. An illusory example (Spoilers alert)
  
@@ -40,18 +40,18 @@ Ultimately, God's desire is to bring us to place of genuine happiness. A lot of 
  
 Of course, this example is a bit contrived. God is not trying to teach you karate, but the point here is this: God loves us so much, and all he cares about is bringing us to a place of genuine happiness. God has been moving in an infinite capacity from eternity for us. It is up to us to align ourselves. 
  
-> Either you karate do yes, or karate do no. You karate do guess so, kwhee. Just like grape.  Understand? 
+> Either you karate do yes, or karate do no. You karate do guess so, kwhee [squishing sound]. Just like grape. Understand? 
  
 -- Mr. Miyagi.
  
 ### Takeaway
  
-The takeaway here is this: God is constant, and that constant is unconditional love. Contrary to what you might read, think or hear, He is not a vengeful, tyrannical overlord, whose goal is to bend our will to his purpose only. Given the challenges we face, it is difficult to see how this is true. There are times when we compel ourselves out of fear to draw closer to God. At other times, we get mad at God and we shake our fists, yet it is love and understanding that imparts joy, not fear. Coming to this understanding, does not happen overnight. It takes time, and it takes effort. 
+The takeaway here is this: God is constant, and that constant is unconditional love. Contrary to what you might read, think or hear, He is not a vengeful, tyrannical overlord whose goal is to bend our will to his purpose only. Given the challenges we face, it is difficult to see how this is true. There are times when we compel ourselves out of fear to draw closer to God. At other times, we get mad at God and shake our fists, yet it is love and understanding that imparts joy, not fear. Coming to this understanding does not happen overnight. It takes time, and it takes effort. 
 
 
-The best way (I’ve found) to understand unconditional love is to mimic it in our own lives because then we'll begin to truly understand the joys inherent in living for a greater purpose. Here's an exercise, pick one thing that you can do now that people, not just yourself, will benefit from. It doesn't have to be the grandest thing like donating a lot of money. It could be the smallest of things like sweeping a room, or cooking a meal. The goal of this exercise is to be process oriented, not outcome oriented.  In other words, focus NOT on what you'll get, but on producing your best work. There is, after all, more blessing in giving than in receiving. See it through, and journal how it makes you feel. It may or may not work for you, but you can send us an email of your experience with it. We eager to know whether or not it works for you. 
+The best way (I’ve found) to understand unconditional love is to mimic it in our own lives because then we'll begin to truly understand the joys inherent in living for a greater purpose. Here's an exercise, pick one thing that you can do now that people, not just yourself, will benefit from. It doesn't have to be the grandest thing like donating a lot of money. It could be the smallest of things like sweeping a room, or cooking a meal. The goal of this exercise is to be process-oriented, not outcome-oriented.  In other words, focus NOT on what you'll get, but on producing your best work. There is, after all, more blessing in giving than in receiving. See it through, and journal how it makes you feel. It may or may not work for you, but you can send us an [email](https://therationalmind.org/contact "email") of your experience with it. We eager to know whether or not it works for you. 
  
-Now, many (of my friends at least) have argued unconditional love is impossible for us mere mortals, but I disagree, so join me in the second part of this series, Love unconditional-Part II , where we explore how we can apply the ideas espoused here to our personal relationships and, possibly, love unconditionally.
+Now, many (of my friends at least) have argued unconditional love is impossible for us mere mortals, but I don't see it this way, so join me in the second part of this series, Love unconditional-Part II , where we explore how we can apply the ideas espoused here to our personal relationships and, possibly, love unconditionally.
 
 
-Postscript: There are a lot of things mentioned or alluded to in the article which weren't expounded upon. For instance, we did talk about why there's so much suffering in the world if God's love for the human race in unconditional. These topics are deep and would require their own articles, or article series in order to properly explore them.
+Postscript: There are many things mentioned or alluded to in the article that weren't expounded upon. For instance, we did talk about why there's so much suffering in the world if God's love for the human race in unconditional. These topics are deep and would require their own articles or article series to explore them properly.
