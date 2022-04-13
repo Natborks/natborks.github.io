@@ -18,7 +18,7 @@ So how do we reconcile this idea of agape love with seeming conditional love set
  
 Q. Why is it that God seemingly withdraws from us when we stray from his path? Doesn’t that make his love conditional?
  
-> A. God’s love is not conditional. God’s love is seemingly or waning kindled depending on the individual’s perception.  Let me use the sun and planets as an example. The sun does not increase or reduce in its intensity. However, the earth, due to its position, receives this light and warmth in varying degrees. As a result, we have winters, summers, springs, autumns, days and nights. So this change in the position of the sun is only an apparent change. Likewise with God, the closer we move to him, the more intensely we feel his love.
+> A. God’s love is not conditional. God’s love is seemingly  waning or kindled depending on the individual’s perception.  Let me use the sun and planets as an example. The sun does not increase or reduce in its intensity. However, the earth, due to its position, receives this light and warmth in varying degrees. As a result, we have winters, summers, springs, autumns, days and nights. So this change in the position of the sun is only an apparent change. Likewise with God, the closer we move to him, the more intensely we feel his love.
  
 Q. If I have to do something to get closer to God, isn’t this love still conditional on my part?
  
