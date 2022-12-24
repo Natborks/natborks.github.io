@@ -7,7 +7,7 @@ categories: [Providence]
 > “And she brought forth her firstborn son, and wrapped him in swaddling clothes, and laid him in a manger; because there was no room for them in the inn.” (Luke 2:7)
 ![Mary and Joseph at the inn](https://nornirn.files.wordpress.com/2012/12/no-room-at-the-inn.jpg "No room for christ's birth in the inn")
  
-Christmas is an annual event commemorating the birth of Jesus Christ and is celebrated by billions of people around the world on December 25 (Wikipedia). The circumstances surrounding Christ’s birth are quite peculiar. On the surface, it looks like the Lord avoiding all high expectations and coming into the world in humility, but there’s more to it. In its depths, it’s a story of love, growth, and the role you have to play in extending the Lord’s reach to all mankind
+Christmas is an annual event commemorating the birth of Jesus Christ and is celebrated by billions of people around the world on December 25 (Wikipedia). The circumstances surrounding Christ’s birth are quite peculiar. On the surface, it looks like Christ avoiding high expectations and coming into the world in humility, but there’s more to it. In its depths, it’s a story of love, growth, and the role you have to play in extending the Lord’s reach to all mankind
 
 ## The Birth of Christ
 
