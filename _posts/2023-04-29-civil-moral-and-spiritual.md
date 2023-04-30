@@ -37,7 +37,7 @@ There are many places in the Bible where God warns us about these dead works. In
 
 ## The Fear of the Lord is the beginning of wisdom
 
-As we begin to seek the Lord’s will in determining what the right thing to do is, he opens our minds to what is truly useful and good in every situation. This wisdom is the basis of spirituality (spiritual good), the rock on which one’s house is built (Matthew 7:24-25). This spirituality has the effect of blessing us with the rewards of heaven, while keeping us away from the gates of hell.
+Morality alone is not enough, and that is why we need to seek the Lord's face in all our acts of righteousness. As we begin to seek the Lord’s will in determining what the right thing to do is, he opens our minds to what is truly useful and good in every situation. This wisdom is the basis of spirituality (spiritual good), the rock on which one’s house is built (Matthew 7:24-25). This spirituality has the effect of blessing us with the rewards of heaven, while keeping us away from the gates of hell.
 
 ## Takeaway
 
