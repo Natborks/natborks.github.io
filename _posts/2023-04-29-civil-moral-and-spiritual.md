@@ -5,7 +5,7 @@ categories: [Morality]
 ---
 
 ![Lady Justice](https://images.unsplash.com/photo-1589994965851-a8f479c573a9?ixlib=rb-4.0.3&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1740&q=80 "Lady Justice")
-Some people say there is no need for religion because everyone knows what is moral. This perspective, while seemingly true, is flawed. Let’s explore why with the following topic: Civil, Moral, and Spiritual Good
+Some people say there is no need for religion because everyone knows what is moral. This perspective, while seemingly true, is flawed. Additionally, some are righteous because they are scared of hell, some are righteouse because they seek the reward of heaven. Which of these is the right approach? Let’s explore why with the following topic: Civil, Moral, and Spiritual Good.
 
 ## Civil Good:
 
@@ -13,7 +13,7 @@ This is the level of laws, statutes, instructions, taboos, etc. Good deeds done 
 
 ## Moral Good:
 
-Virtues like hard work, integrity, kindness, etc. are usually not enforceable in any justice system but are beneficial to society. Everyone, with some thought, can see this. This is the realm of moral good or rational good, since it can also be thought of as what is reasonable.
+Virtues like hard work, integrity, kindness, etc. are usually not enforceable by any justice system but are beneficial to society.This is the realm of moral good or rational good, since it can also be thought of as what is reasonable.
 
 However, hidden within this good are the motives from which one operates. The motives for these virtuous acts may be entirely self-serving, not necessarily for the goodness itself — which is usually the case because what is called good on this level is highly subjective. A person who acts on this level alone is called a moral man
 
