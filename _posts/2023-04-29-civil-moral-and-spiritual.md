@@ -5,7 +5,6 @@ categories: [Morality]
 ---
 
 ![Lady Justice](https://images.unsplash.com/photo-1589994965851-a8f479c573a9?ixlib=rb-4.0.3&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1740&q=80 "Lady Justice")
-
 Some people say there is no need for religion because everyone knows what is moral. This perspective, while seemingly true, is flawed. Let’s explore why with the following topic: Civil, Moral, and Spiritual Good
 
 ## Civil Good:
