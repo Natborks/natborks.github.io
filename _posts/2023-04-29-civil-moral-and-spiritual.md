@@ -5,7 +5,7 @@ categories: [Morality]
 ---
 
 ![Lady Justice](https://images.unsplash.com/photo-1589994965851-a8f479c573a9?ixlib=rb-4.0.3&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1740&q=80 "Lady Justice")
-Some people say there is no need for religion because everyone knows what is moral. This perspective, while seemingly true, is flawed. Additionally, some are righteous because they are scared of hell, some are righteouse because they seek the reward of heaven. Which of these is the right approach? Let’s explore why with the following topic: Civil, Moral, and Spiritual Good.
+Some people say there is no need for religion because everyone knows what is moral. This perspective, while seemingly true, is flawed. Also, some people are righteous because they are scared of hell, others are righteous because they seek the reward of heaven. Which of these is the right approach? Let’s explore why with the following topic: Civil, Moral, and Spiritual Good.
 
 ## Civil Good:
 
@@ -37,7 +37,7 @@ There are many places in the Bible where God warns us about these dead works. In
 
 ## The Fear of the Lord is the beginning of wisdom
 
-As we begin to seek the Lord’s will in determining what the right thing to do is, he opens our minds to what is truly useful and good in every situation. This wisdom is the basis of spirituality (spiritual good), the rock on which one’s house is built. (Matthew 7:24-25)
+As we begin to seek the Lord’s will in determining what the right thing to do is, he opens our minds to what is truly useful and good in every situation. This wisdom is the basis of spirituality (spiritual good), the rock on which one’s house is built (Matthew 7:24-25). This spirituality has the effect of blessing us with the rewards of heaven, while keeping us away from the gates of hell.
 
 ## Takeaway
 
