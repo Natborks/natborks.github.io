@@ -48,3 +48,5 @@ We usually move from one stage to the next in our spiritual development. As chil
 Pure works Psalm 119:9, 1John 3:3, 1Peter 1:16 and 22, Luke 6:46, 2Timothy 2:21-22, James 4:8, John 15:4
 
 hypocritical works: Matthew 23:13-23 and verse 27-28, 1 John 4:20, Matthew 6:1-4, Luke 20:46-47, Matthew 15:7-9
+
+#### Have any question or contributions? shoot us an email at info@therationalmind.org
