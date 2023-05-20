@@ -27,9 +27,9 @@ Outwardly, spiritual good is not different from civil and moral good, but inward
 
 ## Morality can be used as a means to serve our own selfish ends
 
-As humans, we are usually self-centred, and we usually act in line with self-benefitting motives. While this may not be entirely bad, it can has negative consequences in the long run. Think of shady politicians running for office. They make all the promises, extol their virtues, and perform acts of service in a show of humility and readiness to serve, but when they’re voted into power — when it really matters — they have nothing to offer. Even when they act, it is for their own benefit.
+As humans, we are usually self-centred, and we usually act in line with self-benefitting motives. While this may not be entirely bad, it can have negative consequences in the long run. Think of shady politicians running for office. They make all the promises, extol their virtues, and perform acts of service in a show of humility and readiness to serve, but when they’re voted into power — when it really matters — they have nothing to offer. Even when they act, it is for their own benefit.
 
-Morality can be used to serve our own selfish ends. When operating on the level of moral goodness alone, we tend to brag about it; we seek honour and favour for it; we look down on others because of it; we virtue signal, etc (Luke 18:10-14). This is why morality alone is not enough: it can be done from a self-centred viewpoint, seeking only what we can get in return. Spiritual good, however, is done for what is beyond ourselves: the common, useful good.
+Morality can be used to serve our own selfish ends. When operating on the level of moral goodness alone, we tend to brag about it; we seek honour and favour for it; we look down on others because of it; we virtue signal, etc (Luke 18:10-14). This is why morality alone is not enough: it can be done from a self-centred viewpoint, seeking only what we can get in return. Spiritual good, however, is done for what is beyond ourselves: the common, useful good. As Jesus said in Matthew 5:19-20, " For I say to you, that unless your righteousness exceeds the righteousness of the scribes and Pharisees, you will by no means enter the kingdom of heaven"
 
 ## ”Hypocrites”
 
