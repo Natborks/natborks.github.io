@@ -5,7 +5,6 @@ categories: [Providence]
 ---
 
 ![N. Currier. The crucifixion ](https://media-cldnry.s-nbcnews.com/image/upload/t_fit-1240w,f_auto,q_auto:best/MSNBC/Components/Photo/_new/120524-science-crucifixion-130p.jpg "Print circa 1849 by Nathaniel Currier depicting the crucifixion of Jesus Christ alongside two convicted thieves at Golgotha, outside the walls of ancient Jerusalem src: nbc-news")
-
 Imagine if instead of the gruesome scenes leading up to Jesus’ death on the cross, He passed away peacefully after saying goodbye to His disciples. Imagine if instead of darkness, a torn veil, and an earthquake (Matthew 27:51), everyone continued their day knowing that he would rise again.
 
 The events depicted in His crucifixion illustrate the operation of God’s divine providence: People were doing what they felt was right for them at the time, but God allowed these events to unfold the way they did because of their deeper spiritual significance. Let’s explore.
