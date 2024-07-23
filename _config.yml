@@ -9,7 +9,7 @@ lang: "en"
 name: The Rational Mind
 
 # Short bio or description (displayed in the header)
-description: Semper ad meilora
+description: God is Love
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
 # avatar: /assets/image/avatar.png
@@ -50,7 +50,7 @@ footer_links:
     icon: fa fa-rss-square
 
   - title: Twitter
-    url: 
+    url:
     icon: fa fa-twitter-square
 
 # Enter your copyright text if you wish to override the default one.
@@ -70,7 +70,7 @@ kramdown:
   syntax_highlighter: rouge
   syntax_highlighter_opts:
     # Use existing pygments syntax highlighting css
-    css_class: 'highlight'
+    css_class: "highlight"
 
 # Pagination
 paginate: 5
@@ -92,7 +92,7 @@ gems:
 
 plugins:
   - jekyll-seo-tag
-  
+
 # Exclude these files from your production _site
 exclude:
   - Gemfile
