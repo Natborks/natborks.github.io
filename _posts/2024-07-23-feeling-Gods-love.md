@@ -4,8 +4,8 @@ title: The key to feeling God's love
 categories: [Love]
 ---
 
-![Sheep grazing in a field ](https://images.unsplash.com/photo-1494079218307-7fa091ab4df2?q=80&w=2940&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Sheep grazing in a field. src: ")
-God’s love can be, at times, shrouded in mystery. Our confession of His love rolls off our tongues, but deep in our hearts, there are questions. For some, it might even be a tool for taking advantage of vulnerable people. Look at the state of the world after all. Where is He?
+![Sheep grazing in a field ](https://images.unsplash.com/photo-1494079218307-7fa091ab4df2?q=80&w=2940&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Sheep grazing in a field. ")
+God’s love can be, at times, shrouded in mystery. Our confession of His love rolls off our tongues, but deep in our hearts, there are questions. For skeptics, confessions of His love can be seen as a tool for taking advantage of naive people. If He loved us so much, the world shouldn't in such a terrible state.
 
 God is present for us in His full glory, but we have a role to play to gain experiential knowledge of His love.
 
@@ -46,9 +46,9 @@ To this effect, the Bible says in Matthew 5:8, Blessed are the pure in heart, fo
 
 Such is the case when we unwilling to be obedient to God.
 
-## Thy rod and thy staff they comfort me.
+## Thy rod and thy staff they comfort me (Psalm 23).
 
-![Sherlock Holmes ](https://images.unsplash.com/photo-1710927406191-8722a892551c?q=80&w=2874&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "P. src: https://www.independent.co.uk/arts-entertainment/tv/news/sherlock-fans-rejoice-benedict-cumberbatch-would-love-to-play-the-detective-into-old-age-9756190.html")
+![Psalm 23 ](https://images.pexels.com/photos/7983593/pexels-photo-7983593.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=2 "Photo by Pelageia  Zelenina from Pexels: https://www.pexels.com/photo/calm-woman-lying-with-closed-eyes-in-nature-in-daytime-7983593//")
 
 With all this information, the 23rd Psalm takes a deeper, more refreshing meaning. Our Shepherd offers safety, comfort, growth, blessings (both material and spiritual) if we are willing to be His sheep – it’s just beautiful.
 
