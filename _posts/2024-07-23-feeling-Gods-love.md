@@ -20,7 +20,7 @@ In this article, we uncover the key to falling in love with God and experiencing
 ![Sherlock Holmes ](https://static.independent.co.uk/s3fs-public/thumbnails/image/2014/03/07/09/Sherlock-PA2.jpg?quality=75&width=1250&crop=3%3A2%2Csmart&auto=webp "Sherlock Holmes. src: https://www.independent.co.uk/arts-entertainment/tv/news/sherlock-fans-rejoice-benedict-cumberbatch-would-love-to-play-the-detective-into-old-age-9756190.html")
 _Sherlock Holmes Played by Benedict Cumberbatch_
 
-[There’s an episode in BBC’s ](https://youtu.be/fedC7Pv08Ms?si=jLhQZ9IYfb_oahxZ) Sherlock where John Watson is shocked that given who Sherlock is, he doesn’t know that the earth revolves around the sun. Sherlock acknowledges his ignorance, stating that the fact not useful for his work (by the way, if you have not seen BBC’s Sherlock…really?)
+[There’s an episode in BBC’s Sherlock TV series](https://youtu.be/fedC7Pv08Ms?si=jLhQZ9IYfb_oahxZ) where John Watson (Sherlock's roomate) is shocked that given how intelligent Sherlock (main character) is, he doesn’t know that the earth revolves around the sun. Sherlock acknowledges his ignorance, stating that the fact not useful for his work (by the way, if you have not seen BBC’s Sherlock…really?)
 
 Likewise, We learn many things in our spiritual journey. God’s immeasurable love for us is one of the foremost and most endearing, but without use for it, especially in the face of life’s challenges, it becomes useless.
 
