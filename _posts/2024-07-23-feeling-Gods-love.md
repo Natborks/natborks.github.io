@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The key to feeling God's love
+title: The key to experiencing God's love
 categories: [Love]
 ---
 
@@ -60,7 +60,7 @@ In a state where we are willing to be led by the Lord, his rod is a comfort to u
 
 Again, this is quite unlike goats who usually end up in trouble because their shepherd's rod is anything but a comfort
 
-Admittedly, It can be difficult to turn to the Lord in obedience, especially in the face of life’s challenges, but He is constantly beckoning us to allow Him in. The more obedient we are, the more He reveals Himself to us, and no matter where we are, He can reach us.
+Admittedly, It can be difficult to turn to the Lord in obedience, especially in the face of life’s challenges, but He is constantly beckoning us to allow Him in. The more obedient we are, the more He is revealed to us, and no matter where we are, He can reach us.
 
 It is not unfairness. It is simply because, without this disposition, we are unwilling to allow Him to come in.
 
