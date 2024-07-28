@@ -5,13 +5,13 @@ categories: [Love]
 ---
 
 ![Sheep grazing in a field ](https://images.unsplash.com/photo-1494079218307-7fa091ab4df2?q=80&w=2940&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Sheep grazing in a field. ")
-God’s love can be, at times, shrouded in mystery. Our confession of His love rolls off our tongues, but deep in our hearts, there are questions. For skeptics, confessions of His love can be seen as a tool for taking advantage of naive people. If He loved us so much, the world shouldn't in such a terrible state.
 
-God is present for us in His full glory, but we have a role to play to gain experiential knowledge of His love.
+God’s love for mankind, as professed by many and portrayed in many texts, can often seem unrelatable and out of reach. While many speak of His love so easily, deep inside, questions linger. "Is there such a God who is so loving? Does He really love me?", are amongst the questions we find ourselves asking in the face of life's challenges and uncertainties. For skeptics, claims of such pure divine love may appear as a way to exploit the naive. They argue that if God truly loved us, the world wouldn't be in such a terrible state.
 
+Yet, God's presence and glory are here for everyone, but we have a part to play in truly experiencing His love
 Bible says in Revelations 3:20, “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him….”
 
-In this article, we uncover the key to falling in love with God and experiencing the joy that it comes with, drawing insights from the Bible’s imagery concerning sheep. Sheep, it turns out, isn’t only for food clothing and sacrifices.
+In this article, we uncover the key to falling in love with God and experiencing the joy that it comes with, drawing insights from the Bible’s imagery concerning sheep. Sheep, it turns out, aren't only for food clothing and sacrifices.
 
 ## Presence and Conjunction
 
@@ -26,9 +26,11 @@ Likewise, We learn many things in our spiritual journey. God’s immeasurable lo
 
 Knowing that God loves us presents an image of Him in our minds, but unless our affections are stirred towards him, there is no conjunction with Him. Thus, we cannot feel His love for us.
 
-God gives us the freedom to choose. He is fully present for us, but He will never force a conjunction with us unless we choose to allow Him.
+It’s like reading a book about farming. The ideas in the book only paint a picture of what farming should be, but rolling up your sleeves and tilling the soil is what brings a deeper, more intimate connection with those ideas.
 
-Like Sherlock, if we do not allow the knowledge about God’s love to take root through conjunction with Him, it will eventually wither away. So how do we conjoin?
+God gives us the freedom to choose, but He will never force a conjunction with us unless we allow Him.
+
+If we do not allow the knowledge about God’s love to take root through conjunction with Him, it will eventually wither away.
 
 ## Sheep and Goats
 
@@ -50,7 +52,7 @@ Such is the case when we unwilling to be obedient to God.
 
 ![Psalm 23 ](https://images.pexels.com/photos/7983593/pexels-photo-7983593.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=2 "Photo by Pelageia  Zelenina from Pexels: https://www.pexels.com/photo/calm-woman-lying-with-closed-eyes-in-nature-in-daytime-7983593//")
 
-With all this information, the 23rd Psalm takes a deeper, more refreshing meaning. Our Shepherd offers safety, comfort, growth, blessings (both material and spiritual) if we are willing to be His sheep – it’s just beautiful.
+With all this information, the 23rd Psalm takes a deeper, more refreshing meaning. Our Shepherd offers safety, comfort, growth, blessings (both material and spiritual) if we are willing to be His sheep.
 
 Of note is verse 4 where it says, “Your rod and Your staff, they comfort me”
 
