@@ -10,7 +10,7 @@ We have all engaged in some existentialist philosophy at various points in our l
 
 Many philosophers have also addressed the issue. Prominent among them is psychiatrist and Holocaust survivor, Viktor Frankl. Frankl developed Logotherapy, which is based on the idea that the primary motivating force in human life is the pursuit of meaning, rather than power or pleasure. In his book Man's Search for Meaning (1946), Frankl explains how his theories helped him endure the Holocaust and how that experience strengthened his beliefs.
 
-Meaning and purpose in life are indeed powerful forces. In the post, we post, we tackle meaning from a spiritual viewpoint, showing that man’s life is inherently meaningful, even though surrounding circumstances may suggest otherwise, and that this meaning together with our freedom of choice is God’s greatest gift to us. In exploring these, we realize our true potential in God.
+Meaning and purpose in life are indeed powerful forces. In this post, we tackle meaning from a spiritual viewpoint, showing that man’s life is inherently meaningful, even though surrounding circumstances may suggest otherwise, and that this meaning together with our freedom of choice is God’s greatest gift to us. In exploring these, we realize our true potential in God.
 
 ## Form and Function
 
@@ -24,7 +24,7 @@ The key idea is this: form is married to function. A water bottle wouldn’t ser
 
 ## Defining Perfection
 
-> All unity is formed out of harmony by many. The way the many harmonies determines what kind of love they have - Emmanuel Swedenborg
+> All unity is formed out of harmony by many. The way the many harmonize determines what kind of love they have - Emmanuel Swedenborg
 
 ![Sherlock Holmes ](https://images.unsplash.com/photo-1704027689069-747471f0a40a?q=80&w=2940&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Puzzle pieces")
 
@@ -40,14 +40,14 @@ Thus, our differences should be a source of unity. Unfortunately, human as we ar
 
 ## The enemy
 
-Our enemy, not some person or some idealogy. Our enemy is anything that exists to corrupt our unique vessels. Our enemy could be the devil, stress, self-pity, addiction, anger, pleasure, suffering, etc. It varies in countless ways according to the vessel it tries to destroy. This is why no two people ever fight the same battles.
+Our enemy is not some person or some idealogy. Our enemy is anything that exists to corrupt our unique vessels. Our enemy could be the devil, stress, self-pity, addiction, anger, pleasure, suffering, etc. It varies in countless ways according to the vessel it tries to destroy. This is why no two people ever fight the same battles.
 
 Our enemy is marvellously deceptive, stealing (real joy) from us by selling us a destructive, selfish, unsustainable vision of happiness. We may know this from our experiences when we’ve acted selfishly. However, human as we are, there’s an irresistible appeal in the false promise of salvation the enemy offers.
 
 So yes, we do have external adversaries. However, only we, in our God-given freedom of choice, can allow these external adversaries to harm us. Consequently, we are our true enemies when we identify with our external adversaries.
 ![Sherlock Holmes ](https://images.unsplash.com/photo-1470936972859-25f4c18b7479?q=80&w=2832&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Locking horns witht the enemy")
 
-God has a vision for the human race, a vision of love, usefulness, and abundant joy. In rising to take our place in this vision, we must, necessarily, battle our enemies. It’s not a matter of if these battles will take place, it’s a matter of when. Frank, for example, had to battle himself through concentration camp to solidify his ideas around logotherapy which today have helped millions of people worldwide.
+God has a vision for the human race, a vision of love, usefulness, and abundant joy. In rising to take our place in this vision, we must, necessarily, battle our enemies. It’s not a matter of if these battles will take place, it’s a matter of when. Viktor Frankl, for example, had to battle himself through concentration camp to solidify his ideas around logotherapy which today have helped millions of people worldwide.
 
 ## Conclusion
 
