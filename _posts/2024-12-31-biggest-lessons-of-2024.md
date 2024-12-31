@@ -28,6 +28,7 @@ _It is important to note that being sad about life’s circumstances is complete
 ## Gratitude
 This is more of a reminder than a new lesson. It is one of those things that are cliché, but for me, an attitude of gratitude is one of the most potent tools for spiritual growth. 
 When I take time to reflect on all the ways God has worked in my life, I’m reminded that He is constantly looking out for me. Even the challenges I’m facing now are somehow part of His greater plan because they are making me into a vessel that He can use, and in time, they will be resolved.
+
 When God’s work in our lives is complete, we will no longer despise the challenges that once overwhelmed us. Instead, we’ll recognize them as essential pieces of the journey He used to shape us.
 
 
