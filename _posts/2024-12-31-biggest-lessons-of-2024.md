@@ -4,7 +4,7 @@ title: Three biggest lessons of 2024
 categories: [Providence]
 ---
 
-![fireworks]( "https://images.unsplash.com/photo-1503847977400-9b90e320db5e?q=80&w=2445&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D Toolbox. Everytool has meaning")
+![fireworks](https://images.unsplash.com/photo-1503847977400-9b90e320db5e?q=80&w=2445&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Toolbox. Everytool has meaning")
 
 2024 was filled with challenges, and with challenges came lessons. I’m grateful for these lessons and how they trained my focus on God’s direction. Of everything I’ve learned, three things stood out the most, and these are the ones I want to share in this post.
 
@@ -17,7 +17,7 @@ The key here is to pray for perspective—asking God to align our vision with Hi
 
 ## Self-Pity
 This is a big one. Self-pity is subtle and often insidious. We try to convince God that He must move on our behalf because our situation is so dire.  
-Self pity is trick we try to manipulate God with. [As Kids when we wanted something from our parents, we cry and try to manipulate them.] (https://www.newportacademy.com/resources/restoring-families/manipulative-teenager-behaviors/)  This mindset never really changed coming into adulthood because we think that if we are able to show God just how much we are suffering, He’ll be inclined to move for us. 
+Self pity is trick we try to manipulate God with. [As Kids when we wanted something from our parents, we cry and try to manipulate them.](https://www.newportacademy.com/resources/restoring-families/manipulative-teenager-behaviors/)  This mindset never really changed coming into adulthood because we think that if we are able to show God just how much we are suffering, He’ll be inclined to move for us. 
 
 This mindset is dangerous because we get offended when God doesn’t immediately change our circumstances. We begin to question: _What kind of a God would be so cruel as to leave me in this difficulty?_ Over time, this erodes our confidence in God’s love and faithfulness. Herein lies the insidiousness of the self-pity manipulation tactic. We slowly progress from anger towards God to apathy.
 
