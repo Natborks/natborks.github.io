@@ -11,7 +11,7 @@ categories: [Providence]
 
 ## What God Needs to Do, He Has Already Done
 The first thing to understand is that God is all-powerful, all-wise, and infinitely loving. If God is all-wise, He knows what is best for me. If He is all-powerful, He has the ability to do what is best for me. And if He is all-loving, His actions toward me do not depend on my actions or inactions.
-God knows what is best for us and is already doing His part. An all-knowing, all-loving God doesn’t require us to roll on the floor or cry out desperately before He does what is right for us.
+God knows what is best for us and is already doing His part. An all-knowing, all-loving God doesn’t require us to roll on the floor or cry out desperately before He does what is right for us. What he needs to do, He has already done.
 
 The key here is to pray for perspective—asking God to align our vision with His will. Pray that He strengthens us to accept what He wants for us. The result of this alignment is peace, as our values and desires come into harmony with God’s plan
 
